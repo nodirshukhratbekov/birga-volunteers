@@ -1,1 +1,0 @@
-﻿# birga-volunteers
